@@ -23,4 +23,4 @@ Por favor agrega tus canciones favoritas a esta lista, Kpop.
 13. [TWICE - FEEL SPECIAL](https://www.youtube.com/watch?v=3ymwOvzhwHs)
 14. [BLACKPINK - DDU-DU DDU-DU](https://www.youtube.com/watch?v=IHNzOHi8sJs)
 15. [BLACKPINK - BOOMBAYAH](https://www.youtube.com/watch?v=bwmSjveL3Lc)
-15. [BTS - Dynamite](https://youtu.be/gdZLi9oWNZg?si=JRDUBcUixobjdo6z)
+15. [BTS - DYNAMITE](https://youtu.be/gdZLi9oWNZg?si=JRDUBcUixobjdo6z)
